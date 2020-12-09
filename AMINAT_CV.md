@@ -4,6 +4,8 @@ Mobile: +2349056336484, +2349018523508
 
 Email: ahan789.3@gmail.com 
 
+linkedIn: https://www.linkedin.com/in/aminat-musa-8965821b6
+
 #### Professional Summary 
 
 Skilled and highly enthusiastic IT customer service and support professional having over 5 years' experience cutting across customer relationship management, office administration and software research and training with a proven record of increasing service quality and simplifying business processes.  
